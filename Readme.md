@@ -1,9 +1,11 @@
-#**Juan Daniel Aguirre Lopez**
+Luisa Toro - Javier Miranda - Esteban Davyt - Hans Urpay - Cesar Fontalvo - Juan Aguirre
 
-##Colombia
+# **Juan Daniel Aguirre Lopez**
+
+## olombia
 
 
 Colombia :smiley:
 
-Luisa Toro - Javier Miranda - Esteban Davyt - Hans Urpay - Cesar Fontalvo - Juan Aguirre
+
 
