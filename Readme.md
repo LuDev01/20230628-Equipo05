@@ -4,4 +4,4 @@ Luisa Toro - Javier Miranda - Esteban Davyt - Hans Urpay - Cesar Fontalvo - Juan
 
 ## Chile
 
-Chie :zany_face:
+Chile :zany_face:
